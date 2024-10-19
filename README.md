@@ -3,5 +3,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6ee6c3uiykzyf00n8qqgt3t8m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=110f0b&interchange=true&bar_color=535251&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center">
-<img src="https://files.catbox.moe/l2a242.png"/>
+<img src="https://files.catbox.moe/l2a242.png" width="330" />
 </p>
+
