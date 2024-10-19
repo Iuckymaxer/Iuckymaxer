@@ -6,6 +6,4 @@
 <img src="https://files.catbox.moe/l2a242.png" width="330" />
 </p>
 
-<p align="center">
-⠀⠀⠀art credits: @berteder0 on tumblr
-</p>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![strawpage](https://files.catbox.moe/5r37cw.png)](https://murdertooth.straw.page)⠀[![atabook](https://files.catbox.moe/s5mcj9.png)](https://planetpiss.atabook.org/)⠀[![rentry](https://files.catbox.moe/y9m4h5.png)](https://rentry.co/micahbell)
