@@ -6,4 +6,4 @@
 <img src="https://files.catbox.moe/5y95c7.png" width="400" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![strawpage](https://files.catbox.moe/unjahc.png)](https://murdertooth.straw.page)⠀[![rentry](https://files.catbox.moe/7zckyg.png)](https://rentry.co/micahbell)⠀[![atabook](https://files.catbox.moe/3jztsj.png)](https://planetpiss.atabook.org/)
+
