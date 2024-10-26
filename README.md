@@ -4,5 +4,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=beaverhollow&label=dooshbeegs&style=flat-square&color=010101&base=6593)
 
 <p align="center">
-<img src="https://files.catbox.moe/h418pp.png" width="560" />
+<img src="https://files.catbox.moe/h418pp.png" width="330" />
 </p>
