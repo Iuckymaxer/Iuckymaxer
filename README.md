@@ -7,4 +7,9 @@
 <a href="https://murdertooth.straw.page/" title="strawpage"><img src="https://files.catbox.moe/3julvs.png" width="170" height="30"></a>⠀⠀⠀<a href="https://planetpiss.atabook.org/" title="atabook"><img src="https://files.catbox.moe/t011y2.png" width="170" height="30"></a>⠀⠀⠀<a href="https://rentry.co/murdertooth" title="rentry"><img src="https://files.catbox.moe/rriu9w.png" width="160" height="30"></a>
 </p>
 
+<p align="center">
+<img src="https://files.catbox.moe/bdyk5d.png" width="200" />
+</p>
+
+
 
