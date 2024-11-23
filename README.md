@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=beaverhollow&label=dooshbeegs&style=flat-square&color=142252&base=9597)
 
 <p align="center">
-<a href="https://murdertooth.straw.page/" title="strawpage"><img src="https://files.catbox.moe/3julvs.png" width="170" height="30"></a>⠀⠀⠀<a href="https://planetpiss.atabook.org/" title="atabook"><img src="https://files.catbox.moe/t011y2.png" width="170" height="30"></a>⠀⠀⠀<a href="https://rentry.co/murdertooth" title="rentry"><img src="https://files.catbox.moe/rriu9w.png" width="160" height="30"></a>
+<a href="https://murdertooth.straw.page/" title="strawpage"><img src="https://files.catbox.moe/iceihv.png" width="170" height="30"></a>⠀⠀⠀<a href="https://planetpiss.atabook.org/" title="atabook"><img src="https://files.catbox.moe/yurjl1.png" width="170" height="30"></a>⠀⠀⠀<a href="https://rentry.co/murdertooth" title="rentry"><img src="https://files.catbox.moe/c71ev2.png" width="160" height="30"></a>
 </p>
 
 <p align="center">
