@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/3a8oas.png" width="475" />
+<img src="https://files.catbox.moe/3a8oas.png" width="565" />
 </p>
 
 
