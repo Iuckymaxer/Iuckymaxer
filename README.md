@@ -4,7 +4,7 @@
 
 <a href="https://murdertooth.straw.page/" title="strawpage"><img src="https://files.catbox.moe/8b6mr8.png" width="152" height="20"></a>⠀⠀⠀<a href="https://axlrose.atabook.org/" title="atabook"><img src="https://files.catbox.moe/wuu1a3.png" width="145" height="20"></a>⠀⠀⠀<a href="https://rentry.co/murdertooth" title="rentry"><img src="https://files.catbox.moe/tia4yz.png" width="135" height="20"></a>
 
-[sign my tree](https://colormytree.me/2024/01JE9DTAV3KPCVD456VDMGXAX3) & i will be vry joyous!!
+[color my tree](https://colormytree.me/2024/01JE9DTAV3KPCVD456VDMGXAX3) & i will be vry joyous!!
 
 
 
