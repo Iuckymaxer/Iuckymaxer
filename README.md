@@ -5,5 +5,4 @@
 <a href="https://rentry.co/daron" title="rentry"><img src="https://files.catbox.moe/tia4yz.png" width="130" height="20"></a>
 ⠀⠀⠀<a href="https://axlrose.atabook.org/" title="atabook"><img src="https://files.catbox.moe/wuu1a3.png" width="145" height="20"></a>⠀⠀⠀<a href="https://dmsob.straw.page/" title="strawpage"><img src="https://files.catbox.moe/8b6mr8.png" width="152" height="20"></a>
 
-im all over the place on this game feel free 2 interact at any time 
-
+sign my atabook or strawpage it makes me vry joyous!!
