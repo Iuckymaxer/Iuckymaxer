@@ -4,4 +4,4 @@
 <a href="https://rentry.co/daron" title="rentry"><img src="https://files.catbox.moe/tia4yz.png" width="77" height="16"></a>
 ⠀⠀⠀<a href="https://axlrose.atabook.org/" title="atabook"><img src="https://files.catbox.moe/wuu1a3.png" width="77" height="16"></a>⠀⠀⠀<a href="https://dmsob.straw.page/" title="strawpage"><img src="https://files.catbox.moe/8b6mr8.png" width="86" height="16"></a>
 
-<a href="" title="wtf"><img src="https://file.garden/Z1rbruKl12fQ7u-4/64b57a774673bab5132bd552d351e23b.jpg" width="280" height="285"></a>
+<a href="" title="wtf"><img src="https://file.garden/Z1rbruKl12fQ7u-4/64b57a774673bab5132bd552d351e23b.jpg" width="306" height="310"></a>
