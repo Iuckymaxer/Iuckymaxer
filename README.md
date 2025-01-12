@@ -8,4 +8,4 @@
 
 seattle sound fanatic (i hate it here)
 
-i recommend you read my strawpage before you interact with me but in short.. hi im lars, eddie or chris & i really REALLY like music. rock, metal, grunge, you get the gist. huge fan of chris cornell, james hetfield, slash, kurt cobain and like 700 other musicians.. im not really into medias outside of bands right now but you can still talk to me! sign my ata or write in my strawpage if ur awesome k bye 
+i recommend you read my strawpage before you interact with me but in short.. hi im lars, eddie or chris & i really REALLY like music. rock, metal, grunge, you get the gist. huge fan of chris cornell, james hetfield, slash, kurt cobain and like 700 other musicians.. im not really into things outside of bands right now but you can still talk to me! sign my ata or write in my strawpage if ur awesome k bye 
