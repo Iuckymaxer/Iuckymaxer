@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=punks&style=flat-square&color=292d31&base=19264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=punks&style=flat-square&color=131313&base=19264)
 
 
 <a href="https://alcohollica.straw.page/" title="strawpage"><img src="https://file.garden/Z1rbruKl12fQ7u-4/strawpageimg" width="86" height="16"></a>
