@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=punks&style=flat-square&color=080808&base=19264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=punks&style=flat-square&color=3b3d5a&base=19264)
 
 
 <a href="https://templeofthedog.straw.page/" title="strawpage"><img src="https://file.garden/Z1rbruKl12fQ7u-4/strawpageimg" width="86" height="16"></a>
