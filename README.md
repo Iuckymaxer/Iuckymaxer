@@ -6,4 +6,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6ee6c3uiykzyf00n8qqgt3t8m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=c3ab9e&interchange=true&bar_color=AAAAAA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-may women rule the world
+hi i'm pretty inactive as of late .. ♡ i'll come back eventually but yeah pony town got extremely boring
+<br/>
+to my friends i loveeee u guys so much. feel free to ask for my discord if u dont have it lol
+<br/>
+if you're curious i moved to band twitter (yikes) anyway yeah hi talk to me on ata
