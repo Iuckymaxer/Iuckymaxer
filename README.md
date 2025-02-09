@@ -10,4 +10,4 @@ hi i'm pretty inactive as of late .. ♡ i'll come back eventually but yeah pony
 <br/>
 to my friends i loveeee u guys so much. feel free to ask for my discord if u dont have it lol
 <br/>
-if you're curious i moved to band twitter (yikes) anyway yeah hi talk to me on ata
+if you're reading this and saw me on pt then Hi i'm probably with a friend
