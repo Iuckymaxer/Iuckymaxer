@@ -4,6 +4,7 @@
 
 hi i'm pretty inactive as of late .. ♡ i'll come back eventually but yeah pony town got extremely boring
 <br/>
-to my friends i loveeee u guys so much. feel free to ask for my discord if u dont have it lol
+update removed my atabook until i return sorry friends .. i'm NOT checking that shit
 <br/>
 if you're reading this and saw me on pt then Hi i'm probably with a friend
+
