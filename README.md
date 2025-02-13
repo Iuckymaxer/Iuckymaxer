@@ -6,4 +6,4 @@ still inactive, only on for friends
 <br/>
 interact with caution
 <br/>
-i dont add people off this game
+i dont add people on this game
