@@ -4,6 +4,6 @@
 
 inactive, online for friends
 <br/>
-interact with caution
+tcc dni i dont like you
 <br/>
 i dont add people on this game
