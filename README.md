@@ -4,6 +4,6 @@
 
 inactive, this game gives me a headache
 <br/>
-tcc dni i dont like you
+weird tcc dni i dont like you
 <br/>
 i dont add people on here
