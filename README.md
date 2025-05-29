@@ -4,4 +4,4 @@
 
 i will tell my dad about u he owns roblox and will ban u
 <br>
-im usually above docks / at docks depends where my friends are
+usually above docks but it depends where my friends are
