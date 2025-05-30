@@ -4,6 +4,6 @@
 
 i will tell my dad about u he owns roblox and will ban u
 <br>
-im offtab or completely afk 90% of the time .. might not see whispers
+im offtab or afk 90% of the time .. might not see whispers
 
 ![](https://files.catbox.moe/nogggw.webp)
