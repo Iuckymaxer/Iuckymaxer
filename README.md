@@ -4,8 +4,5 @@
 
 i will tell my dad about u he owns roblox and will ban u
 <br>
-im offtab 90% of the time .. whisper me !! ^-^
-<br>
-c+h encouraged !!!
-
+im offtab 90% of the time .. whisper me !!
 
