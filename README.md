@@ -7,9 +7,8 @@ i will tell my dad about u he owns roblox and will ban u
 im offtab 90% of the time .. whisper me !!
 <br>
 <br>
-forsaken/trud/phighting/blocktales fans plz interact !!! i want more friends ..
+forsaken/trud/phighting/blocktales fans plz interact !! i want more friends .. (╥﹏╥)
 
 <img src="https://files.catbox.moe/ufgrsj.png" width="588" height="343">
-formerly bigdumbsex btw ... for my older friends
-
+=
 
