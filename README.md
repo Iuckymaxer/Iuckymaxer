@@ -9,5 +9,6 @@ im offtab 90% of the time .. whisper me !!
 <br>
 forsaken/trud/phighting/blocktales fans plz interact !!! i want more friends ..
 
-![](https://files.catbox.moe/ymp03m.png=100x100)
+<img src="https://files.catbox.moe/zp6f34.png" width="548">
+
 
