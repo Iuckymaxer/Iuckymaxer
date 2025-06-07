@@ -10,6 +10,6 @@ im offtab 90% of the time .. whisper me !!
 forsaken/trud/phighting/blocktales fans plz interact !!! i want more friends ..
 
 <img src="https://files.catbox.moe/ufgrsj.png" width="588" height="343">
-formerly bigdumbsex
+formerly bigdumbsex btw ... for my older friends
 
 
