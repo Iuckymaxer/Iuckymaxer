@@ -12,4 +12,5 @@ c+h encouraged, read links & bmf if we share interests !!
 
 ![](https://files.catbox.moe/kekc6s.webp)
 
-formerly boytreat Sorry i had to change it this 1x thing gets serious
+formerly boytreat Sorry i had to change it this 1x thing gets serious <br>
+also my links are pc only ! my rentry has a mobile version though
