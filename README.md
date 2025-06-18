@@ -1,6 +1,6 @@
 
 <p align="center">
-<img src="https://files.catbox.moe/vwye59.png" width="628" height="413">
+<img src="https://files.catbox.moe/z71om7.png" width="348" height="413">
 </p>
 
 <p align="center">
@@ -13,10 +13,6 @@ c+h highly encouraged, read links & bmf if we share interests !!
 </p>
 
 ![](https://komarev.com/ghpvc/?username=beaverhollow&label=survivors&style=flat-square&color=000000&base=23264)
-
-<p align="center">
   
-![](https://files.catbox.moe/bl44rq.png) ![](https://files.catbox.moe/67uace.webp) ![](https://files.catbox.moe/bhxidf.webp) ![](https://files.catbox.moe/hsprba.webp)
-
 
 
