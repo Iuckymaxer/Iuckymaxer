@@ -18,7 +18,7 @@ sign
 
 <div align="center">
 
-![art by my bf!!!](https://files.catbox.moe/7pz8jv.png)
+![art by my bf!!!](https://files.catbox.moe/h4t5pd.png)
 
 </div>
 
