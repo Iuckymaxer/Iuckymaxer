@@ -12,7 +12,7 @@ sign
 [my ata](https://adminvirus.atabook.org/) !
 
 
- [strawpage](https://boytreat.straw.page/)⠀[rentry](https://rentry.co/boytreat)⠀[alt rentry](https://rentry.co/fret)⠀[pronouns.cc](https://pronouns.cc/@adminvirus) 
+ [strawpage](https://winendine.straw.page/)⠀[rentry](https://rentry.co/boytreat)⠀[pronouns.cc](https://pronouns.cc/@adminvirus) 
 
 </div>
 
