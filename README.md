@@ -18,10 +18,8 @@ sign
 
 <div align="center">
 
-![helo](https://files.catbox.moe/zzi81f.png)
+![helo](https://files.catbox.moe/jzkrzd.png)
 
 </div>
-
-im often on hiatus from ponytown, sorry !!!
 
 </div>
