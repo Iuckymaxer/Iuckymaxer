@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=survivors&style=flat-square&color=EB9447&base=23264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=players&style=flat-square&color=20240C&base=23264)
 
 </div>
 
@@ -18,7 +18,7 @@ sign
 
 <div align="center">
 
-![helo](https://files.catbox.moe/jzkrzd.png)
+![helo](https://files.catbox.moe/8vgeof.png)
 
 </div>
 
