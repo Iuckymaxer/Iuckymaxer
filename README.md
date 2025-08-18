@@ -18,7 +18,7 @@ sign
 
 <div align="center">
 
-![helo](https://files.catbox.moe/t8xtxt.png)
+![helo](https://files.catbox.moe/khzo3l.png)
 
 </div>
 
